@@ -241,7 +241,7 @@ Independent Researcher
 MS Information Technology, University of Central Missouri
 Jacksonville, FL
 
-[LinkedIn](https://linkedin.com/in/rahulnaredla) · [Email](mailto:rahul.nr1627@gmail.com)
+[Email](mailto:rahul.nr1627@gmail.com)
 
 ---
 
